@@ -1,0 +1,1 @@
+# richwaygam.github.io
